@@ -4,8 +4,8 @@
 
 **Project Link:** [View Project](https://learn.nextwork.org/projects/785bf82c-f3d5-47f6-818c-623757a0218e)
 
-**Author:** Dark prince  
-**Email:** darkpeince309@gmail.com
+**Author:** Pratay Karali  
+**Email:** pratay.karali2005@gmail.com
 
 ---
 
